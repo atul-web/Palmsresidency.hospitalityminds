@@ -1,0 +1,1 @@
+# Palmsresidency.hospitalityminds
